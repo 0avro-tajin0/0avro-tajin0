@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on my youtube Channel.
 - 📫 Contact me 
 -     M@il: nafis.blackcodex@gmail.com
--     F@cebook: Nafis Tajin
+-     F@cebook: Nafis Tazin
 -     Youtube: BlackCodex
 
 <!---
