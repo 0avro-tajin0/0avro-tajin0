@@ -4,7 +4,7 @@
 - 🏢 I’m currently working on Fullstack Web Development.
 - 💞️ I’m looking to collaborate on my youtube Channel.
 - 📫 Contact me 
--     M@il: avrotajin2002@gmail.com
+-     M@il: nafis.blackcodex@gmail.com
 -     F@cebook: Nafis Tajin
 -     Youtube: BlackCodex
 
